@@ -2,7 +2,7 @@
 <p>• 封锁严厉！网址能访问的，请记的收藏。
 <p>• 建议用谷歌或火狐官方浏览器访问。
 <p>◎   • 视 频： 
-<a href="http://au.cpcg.space/tv/index.html" target="_blank">网址一</a> 　 
+<a href="http://kd.alufaisca.com/tv/index.html" target="_blank">网址一</a> 　 
 <a href="http://au.cpcg.space/9018.html" target="_blank">网址二</a> 　 
 <a href="http://au.cpcg.space/9449.html" target="_blank">网址三</a></p>
 <p>◎ </span>  •  小 站：  
